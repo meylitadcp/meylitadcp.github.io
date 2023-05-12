@@ -3,4 +3,4 @@ My CV Adeku
 
 Disclamer: hak cipta huseinputrawp@gmail.com
 
-Copyright (c) Husein Putra Widya Pratama
+Copyright (c) 2023 Husein Putra Widya Pratama
